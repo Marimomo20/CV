@@ -1,6 +1,6 @@
 # Mariana Morales Morales 
 
-Meteorológa en la [Estación Experimental Agrícola Fabrio Baudrid Moreno](https://eeafbm.ucr.ac.cr/)
+Meteoróloga en la [Estación Experimental Agrícola Fabrio Baudrid Moreno](https://eeafbm.ucr.ac.cr/)
 
 
 ## Formación académica
